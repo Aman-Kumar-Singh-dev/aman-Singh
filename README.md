@@ -1,4 +1,4 @@
-# 💫 Hi 👋, I'm Imran Alam
+# 💫 Hi 👋, I'm Aman Kumar Singh
 **A passionate Collage Student || Web Developer || Editor**
 
 Email Me 👉 ✉️ **amansinghaman0116@gmail.com** For Collaboration/Project or Anything Else. 😊😊
